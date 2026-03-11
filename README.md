@@ -7,7 +7,7 @@
       <img height="35" width="35" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/0/06/Ginger_Gingerbread_Man.png/revision/latest?cb=20250521112759">
     best 2 whisper as im often offtab <br>
       <img height="35" width="35" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/0/06/Ginger_Gingerbread_Man.png/revision/latest?cb=20250521112759">
-    quite shy, wont interact first <br>
+    quite shy, wont interact first + 14 yr old <br>
       <img height="35" width="35" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/f/f7/Stand_still%21%21_Sticker.png/revision/latest?cb=20251212200807">
     basic dni !! (¬`‸´¬) <br>
       <img height="35" width="35" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/3/37/Thank_you%21_Sticker.png/revision/latest?cb=20251212200721">
@@ -19,6 +19,6 @@
       <img height="35" width="35" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/0/06/Ginger_Gingerbread_Man.png/revision/latest?cb=20250521112759">
     Eggson　➷　int w/ caution or care \(”˚☐˚)/ <br>
       <img height="35" width="35" src="https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/0/06/Ginger_Gingerbread_Man.png/revision/latest?cb=20250521112759">
-    ─── fictionkin + yumeshipper, doubles allowed 2 int !! <br>
+    ─── fictionkin + self-shipper/yumeshipper, doubles allowed 2 int !! <br>
     </th>
   </tr>
